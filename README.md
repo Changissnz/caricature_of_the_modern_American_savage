@@ -10,4 +10,8 @@ for a good start. Here already, there are two schools of thought: talk little an
 actions count, or talk much and talk about virtually anything for the truth or whatever 
 and beyond. 
 
+The modern American savage is no different from one from another land. This fact is a 
+little insulting to the idea of American exceptionalism, but it makes for a great starting 
+point. 
+
 
