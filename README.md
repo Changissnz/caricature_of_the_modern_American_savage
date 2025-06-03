@@ -68,5 +68,9 @@ them for their domination as perpetual as public perception embraces them out to
 impressions, presentability, persuasion all to centralize social understanding of them in 
 monotonous terms prime for caricature. Models. 
 
+The modern American savage abuses the adage of "sticks and stones may break my bones, but words 
+will never hurt me". This is undeniable. This writing's compatibility with the previous statement 
+is hypocrisy that is also reminder and also, a hypocrisy that is based on personal circumstances. 
+
 
 
