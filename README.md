@@ -37,7 +37,9 @@ appeals to a kind of populism that would kill for a stagnation in advances if it
 rule over their users. Also, as a reminder, formal education is frequently associated with 
 intelligence which, as anyone that has studied only a metaphorical ounce of history would 
 know, is historically reserved for an upper-class, specifically, the ruling class. The signing 
-of specific legislation into law can imperil certain people. Placing contracts on specific 
+of specific legislation into law can imperil certain peoples. Placing contracts on specific 
 persons for "their own security" can, in fact, be euphemisms for their silent removal from 
-society or the face of the Earth. 
+society or the face of the Earth. Examples come and go, so this article will not exemplify 
+on the previous two statements, and the attempt to characterize the modern American savage 
+in essential terms continues. 
 
