@@ -66,7 +66,9 @@ have a tendency to prefer operating in the light. Entertainment show business en
 ones. From their perspective, they are what this fuel revolves around, an endless cycle empowering 
 them for their domination as perpetual as public perception embraces them out to be. First 
 impressions, presentability, persuasion all to centralize social understanding of them in 
-monotonous terms prime for caricature. Models. 
+monotonous terms prime for positive caricature. Models. Humiliation never stopped them. In fact, 
+whatever games of humiliation was inflicted on them by those above, heretic or not, is carefully 
+learned by them as part of legacy of executive power to continue. 
 
 The modern American savage abuses the adage of "sticks and stones may break my bones, but words 
 will never hurt me". This is undeniable. This writing's compatibility with the previous statement 
