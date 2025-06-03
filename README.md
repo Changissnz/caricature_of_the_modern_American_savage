@@ -46,15 +46,27 @@ in essential terms continues.
 What makes the modern American savage distinctive enough to be placed into a distinct category, 
 as opposed to Mongoloid or Negroid or Slavic savage, is that the norms of the US are relatively 
 more commercial than many other nations. The commercial legacy of the US indeed made for a lot 
-of misonceptions about it. Some nations did or do believe that the US was nothing more than a 
+of misconceptions about it. Some nations did or do believe that the US was nothing more than a 
 merchant's state, but these nations will not be specifically named here. With commerce, the 
-erection,propagation, and maintenance of supply chains comprise cause for the inevitable one 
+erection, propagation, and maintenance of supply chains comprise cause for the inevitable one 
 equilibrium of few bosses and many workers, these workers in some cases even regarded as "slaves", 
-an archaic viewpoint but one that is as relevant as the existing degrees of servitude and bondage 
-of worker by boss, and also of course, the mentality of belief in it. The metric of commerce, alone, 
-cannot possibly be the means to distinguish a great nation from a weak one. The independence of 
+an archaic viewpoint but one that is as relevant today as the existing degrees of servitude and 
+bondage of worker by boss, and also of course, the mentality of belief in it. The metric of commerce, 
+alone, cannot possibly be the means to distinguish a great nation from a weak one. The independence of 
 thought and autonomy in executive power also need to be considered in the context of commerce, for 
 there are many that yearn for commercial success. But then commercial success comes to them and 
 they are left with balancing out their priorities of sticking with the playbook or operating by 
-their independent thought in their newfound position of affluence. 
+their independent thought in their newfound position of affluence. A moral dilemma? Or is it a 
+statesman's duty? 
+
+Modern American savages focus their efforts on improving their appeal to the target audience. 
+That is really a big reason why social ills remain. To operate in the shadows is too dark and 
+there would be nothing to show for except for ends revealed too late. So modern American savages 
+have a tendency to prefer operating in the light. Entertainment show business encourages these 
+ones. From their perspective, they are what this fuel revolves around, an endless cycle for their 
+domination as perpetual as public perception embraces them out to be. 
+
+
+
+
 
