@@ -27,3 +27,11 @@ obscurantism no longer suffices, they reflect on themself as an exposed one, so 
 believe that they should no longer have to "hide" anything for their true form. A human being 
 in a civilization, one that underwent civility processes, that is indeed a savage, a modern 
 American savage at that. 
+
+Now, a controversial notion on characterizing savagery is to be introduced. But beware that 
+said notion is nothing unique; it has been spoken and written of on several occasions. The 
+civilized savage kills with words, assassinates by putting pen to paper, and outsmarts their 
+opponents that would have otherwise pulverized them. This is a dangerous notion because it 
+appeals to a kind of populism that would kill for a stagnation in advances if it meant that 
+"peace" and "norms" are preserved. Words, pens, and intelligence are only as dangerous as the 
+rule over their users. 
