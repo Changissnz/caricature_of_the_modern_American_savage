@@ -16,4 +16,8 @@ supposed to be the overhead characteristic of all characteristics to the land. B
 makes for a great starting point. Modern American savages long for dysfunctional 
 circumstances to afflict those that are more talented and moral than them. With 
 dysfunctional circumstances comes the opportunity for them to really take charge, to 
-seize the reins from the powers that were. 
+seize the reins from the powers that were. This is a very rudimentary observation since 
+the forging of civilization, no matter how technocratic or theocratic or somewhere in 
+between, is for a systemic "product", a world that should be. Once the system morphs 
+into questionable forms, and then serious questions are asked about serious shortcomings, 
+there is the opening. The rise of a modern American savage. 
