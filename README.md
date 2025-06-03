@@ -50,6 +50,6 @@ of misonceptions about it. Some nations did or do believe that the US was nothin
 merchant's state, but these nations will not be specifically named here. With commerce, the 
 erection,propagation, and maintenance of supply chains comprise cause for the inevitable one 
 equilibrium of few bosses and many workers, these workers in some cases even regarded as "slaves", 
-an archaic viewpoint but one that is as relevant as the degree of servitude and bondage of worker 
-by boss. 
+an archaic viewpoint but one that is as relevant as the existing degrees of servitude and bondage 
+of worker by boss, and also of course, the mentality of belief in it. 
 
