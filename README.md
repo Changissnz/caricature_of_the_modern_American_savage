@@ -1,4 +1,5 @@
 # The Modern American Savage
+## Written By: Richard Pham 
 
 This article is not about the glories of the great American, of past or present, 
 of name unsung or thoroughly celebrated. Instead, the spirit behind this article 
