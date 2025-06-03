@@ -83,6 +83,11 @@ How does the modern American savage fare in today's rapidly shifting economy? Ar
 The acronym is AI. AI. AI. AI. They are probably not doing so well, despite their possibly extravagant 
 inheritance, or doing so well regardless of their inheritance. That is the nature of the commercial 
 beast that bites off one arm and leaves the other one intact, as a definitive comparison of what is 
-and what could have been, roughly speaking. 
+and what could have been, roughly speaking. An "industrial revolution" has been ushered in, so there 
+must be a great scramble. The modern American savage sees through their suffering during these times 
+because they see opportunity. The many trains of complaints goes like this: there are so many money problems, 
+people have lost sight of their own worth outside of the skills they have acquired, people need direction 
+and prerogative and some would definitely sacrifice their freedoms such as by selling their bodies to 
+reaffirm their positions in these most troubling times. 
 
 
