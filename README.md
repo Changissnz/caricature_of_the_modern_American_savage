@@ -94,3 +94,12 @@ that have re-emerged. The modern American savage thinks, "maybe they could be my
 Modern American savages are not confined to being monolingual in English. Other languages that are 
 popularly used are Spanish, Russian, Arabic and Mandarin. 
 
+Modern American savages have ambitions that are multi-variate in and of themselves, and also variable 
+in comparison with each other. This is another trait of theirs that allow them to "blend in with their 
+surroundings". But here is where a misconception may occur. Modern American savages are not all "tigers". 
+They are also not all "wolves". Grievous mistakes in predicting their behaviors may occur when they are 
+misconceived by labels such as these. Some modern American savages strive for wealth accumulation, one 
+of the evident paths of social mobility. So the means by which this sub-category of modern American 
+savage is different. More refined in decorum and soft-spoken, all part of the outfit to shake hands 
+and partner up with financial prestige. 
+
