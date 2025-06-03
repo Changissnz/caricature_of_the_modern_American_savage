@@ -68,11 +68,14 @@ them for their domination as perpetual as public perception embraces them out to
 impressions, presentability, persuasion all to centralize social understanding of them in 
 monotonous terms prime for positive caricature. Models. Humiliation never stopped them. In fact, 
 whatever games of humiliation inflicted on them by those above, heretic or not, is carefully 
-learned by them as part of legacy of executive power to continue on. 
+learned by them as part of legacy of executive power to pass on. 
 
 The modern American savage abuses the adage of "sticks and stones may break my bones, but words 
 will never hurt me". This is undeniable. This writing's compatibility with the previous statement 
 is hypocrisy that is also reminder and also, a hypocrisy that is based on personal circumstances. 
+Words make for a good starting point, especially when demand for labor is not there and so many are 
+left diddling around able to do nothing but eat and chit-chat like high-school girls. Some modern 
+American savages prefer American high-school girls over other demographics, by the way. 
 
 
 
