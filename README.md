@@ -63,10 +63,10 @@ Modern American savages focus their efforts on improving their appeal to the tar
 That is really a big reason why social ills remain. To operate in the shadows is too dark and 
 there would be nothing to show for except for ends revealed too late. So modern American savages 
 have a tendency to prefer operating in the light. Entertainment show business encourages these 
-ones. From their perspective, they are what this fuel revolves around, an endless cycle for their 
-domination as perpetual as public perception embraces them out to be. 
-
-
+ones. From their perspective, they are what this fuel revolves around, an endless cycle empowering 
+them for their domination as perpetual as public perception embraces them out to be. First 
+impressions, presentability, persuasion all to centralize social understanding of them in 
+monotonous terms prime for caricature. Models. 
 
 
 
