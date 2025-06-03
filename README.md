@@ -119,4 +119,7 @@ such impossible transpirations as immediate wealth distribution. They tend to be
 in social spheres of pertinence. So it is not difficult for them to "put things together for results" on 
 a majority of matters dependent on cooperation. However, what tends to be an impediment to the longevity 
 of their successes is their organizational integrity undergoes corrosion from social credit systems and 
-profiteering here and there. 
+profiteering here and there. Afterwards in some cases, their worldview shrinks back into their own 
+circumstances, and they are left with a self-pitying flame that burned them, continues to burn them so 
+greatly that they believe the only way to get back to square one is to get back at their former colleagues. 
+
