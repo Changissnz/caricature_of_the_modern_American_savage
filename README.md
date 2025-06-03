@@ -21,9 +21,9 @@ the forging of civilization, no matter how technocratic or theocratic or somewhe
 between, is for a systemic "product", a world that should be. Once the system morphs 
 into questionable forms, and then serious questions are asked about serious shortcomings, 
 there is the opening. The rise of a modern American savage, someone that perhaps stood by 
-ideals through thick and thin and rain or shine despite the duplicity that they had to 
-obscure to maintain the straight and steadfast posture. But once the obscurantism no 
-longer suffices, they reflect on themself as an exposed one, so they then believe that 
-they should no longer have to "hide" anything for their true form. A human being in a 
-civilization, one that underwent civility processes, that is indeed a savage, a modern 
+ideals through thick and thin and rain or shine, once upon a time, despite the duplicity 
+that they had to obscure to maintain the straight and steadfast posture. But once the 
+obscurantism no longer suffices, they reflect on themself as an exposed one, so they then 
+believe that they should no longer have to "hide" anything for their true form. A human being 
+in a civilization, one that underwent civility processes, that is indeed a savage, a modern 
 American savage at that. 
