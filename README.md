@@ -108,3 +108,8 @@ resort to physical violence, even going so far as to be staunch proponents of fi
 Their powers are less impressive from a layperson's eyes, although relatively more difficult for mechanized 
 systems, trained and all, to detect malice through sensory data, thus allowing them to continue thriving 
 for themselves while disgracing and destroying within their capabilities. 
+
+Other modern American savages believe in regression from the forms that they felt were forced onto them, 
+such as standardized education. They take quotes such as "we don't need no education" to heart. They are 
+opinionated but cannot afford to taste much but do enjoy being sightseers to all kinds of matters, "food" 
+for their thought to justify their ongoing paths towards regression. 
