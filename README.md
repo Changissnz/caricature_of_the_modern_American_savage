@@ -75,7 +75,11 @@ will never hurt me". This is undeniable. This writing's compatibility with the p
 is hypocrisy that is also reminder and also, a hypocrisy that is based on personal circumstances. 
 Words make for a good starting point, especially when demand for labor is not there and so many are 
 left diddling around able to do nothing but eat and chit-chat like high-school girls. Some modern 
-American savages prefer American high-school girls over other demographics, by the way. 
+American savages prefer American high-school girls over other demographics, by the way. A hypothesis 
+for why these particular modern American savages have this preference is that they either want to 
+play with their attraction's orifices or they want to use them as cooking meat. 
 
+How does the modern American savage fare in today's rapidly shifting economy? Artificial intelligence. 
+The acronym is AI. AI. AI. AI. Probably not so well, despite their possibly extravagant inheritance. 
 
 
