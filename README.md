@@ -123,3 +123,9 @@ profiteering here and there. Afterwards in some cases, their worldview shrinks b
 circumstances, and they are left with a self-pitying flame that burned them, continues to burn them so 
 greatly that they believe the only way to get back to square one is to get back at their former colleagues. 
 
+Modern American savages come from all walks of life to converge in the land that is the United States. Some, 
+after showing their ugly hand too soon, are "burned" into the shadows of the night where they remain with 
+their original morals. Others are "frozen" into expectations of models and constructs and such. Administrator, 
+operative, contractor, doctor, homeless guy. It is safe to conclude, during these rapidly shifting times of 
+reorganization in labor and mores, that savagery is becoming harder to detect, especially when it exists 
+but is not there in front. 
