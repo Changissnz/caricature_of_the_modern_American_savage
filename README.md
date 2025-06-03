@@ -43,3 +43,9 @@ society or the face of the Earth. Examples come and go, so this article will not
 on the previous two statements, and the attempt to characterize the modern American savage 
 in essential terms continues. 
 
+What makes the modern American savage distinctive enough to be placed into a distinct category, 
+as opposed to Mongoloid or Negroid or Slavic savage, is that the norms of the US are relatively 
+more commercial than many other nations. The commercial legacy of the US indeed made for a lot 
+of misonceptions about it. Some nations did or do believe that the US was nothing more than a 
+merchant's state, but these nations will not be specifically named here. 
+
