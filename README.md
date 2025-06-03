@@ -80,6 +80,9 @@ for why these particular modern American savages have this preference is that th
 play with their attractions' orifices or they want to use them as cooking meat. 
 
 How does the modern American savage fare in today's rapidly shifting economy? Artificial intelligence. 
-The acronym is AI. AI. AI. AI. Probably not so well, despite their possibly extravagant inheritance. 
+The acronym is AI. AI. AI. AI. They are probably not doing so well, despite their possibly extravagant 
+inheritance, or doing so well regardless of their inheritance. That is the nature of the commercial 
+beast that bites off one arm and leaves the other one intact, as a definitive comparison of what is 
+and what could have been, roughly speaking. 
 
 
