@@ -34,4 +34,7 @@ civilized savage kills with words, assassinates by putting pen to paper, and out
 opponents that would have otherwise pulverized them. This is a dangerous notion because it 
 appeals to a kind of populism that would kill for a stagnation in advances if it meant that 
 "peace" and "norms" are preserved. Words, pens, and intelligence are only as dangerous as the 
-rule over their users. 
+rule over their users. Also, as a reminder, formal education is frequently associated with 
+intelligence which, as anyone that has studied only a metaphorical ounce of history, would 
+know is historically reserved for an upper-class, specifically, the ruling class. 
+
