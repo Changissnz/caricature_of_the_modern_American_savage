@@ -51,5 +51,10 @@ merchant's state, but these nations will not be specifically named here. With co
 erection,propagation, and maintenance of supply chains comprise cause for the inevitable one 
 equilibrium of few bosses and many workers, these workers in some cases even regarded as "slaves", 
 an archaic viewpoint but one that is as relevant as the existing degrees of servitude and bondage 
-of worker by boss, and also of course, the mentality of belief in it. 
+of worker by boss, and also of course, the mentality of belief in it. The metric of commerce, alone, 
+cannot possibly be the means to distinguish a great nation from a weak one. The independence of 
+thought and autonomy in executive power also need to be considered in the context of commerce, for 
+there are many that yearn for commercial success. But then commercial success comes to them and 
+they are left with balancing out their priorities of sticking with the playbook or operating by 
+their independent thought in their newfound position of affluence. 
 
