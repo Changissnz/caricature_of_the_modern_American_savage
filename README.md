@@ -35,6 +35,9 @@ opponents that would have otherwise pulverized them. This is a dangerous notion 
 appeals to a kind of populism that would kill for a stagnation in advances if it meant that 
 "peace" and "norms" are preserved. Words, pens, and intelligence are only as dangerous as the 
 rule over their users. Also, as a reminder, formal education is frequently associated with 
-intelligence which, as anyone that has studied only a metaphorical ounce of history, would 
-know is historically reserved for an upper-class, specifically, the ruling class. 
+intelligence which, as anyone that has studied only a metaphorical ounce of history would 
+know, is historically reserved for an upper-class, specifically, the ruling class. The signing 
+of specific legislation into law can imperil certain people. Placing contracts on specific 
+persons for "their own security" can, in fact, be euphemisms for their silent removal from 
+society or the face of the Earth. 
 
