@@ -111,9 +111,12 @@ for themselves while disgracing and destroying within their capabilities.
 
 Other modern American savages believe in regression from the forms that they felt were forced onto them, 
 such as standardized education. They take quotes such as "we don't need no education" to heart. They are 
-opinionated but cannot afford to taste much but do enjoy being sightseers to all kinds of matters, "food" 
-for their thought to justify their ongoing paths towards regression. Some Americans, once self-absorbed 
-with their personal hobbies and passions, veered off these independent paths due to experiences that 
-turned them more political. These ones then turn into the kind of modern American savage that wish for 
+opinionated but cannot afford to taste much, although all the same enjoy being sightseers to all kinds of 
+matters, "food" for their thought to justify their ongoing paths towards regression. Some Americans, once 
+self-absorbed with their personal hobbies and passions, veered off these independent paths due to experiences 
+that turned them more political. These ones then turn into the kind of modern American savage that wish for 
 such impossible transpirations as immediate wealth distribution. They tend to be organized and well-connected 
-in social spheres of pertinence. So it is not difficult for them to "put things together for results". 
+in social spheres of pertinence. So it is not difficult for them to "put things together for results" on 
+a majority of matters dependent on cooperation. However, what tends to be an impediment to the longevity 
+of their successes is their organizational integrity undergoes corrosion from social credit systems and 
+profiteering here and there. 
