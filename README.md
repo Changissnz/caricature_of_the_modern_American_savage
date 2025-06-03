@@ -103,12 +103,14 @@ misconceived by labels such as these. Some modern American savages strive for we
 of the evident paths of social mobility. So the means by which this sub-category of modern American 
 savage operate is different. More refined in decorum and soft-spoken, all part of the outfit to shake 
 hands and partner up with financial prestige. Political games are usually comprised of power plays as 
-the base unit for their composition. Some modern American savages, having undergone education that aligns 
-with their social strengths and elevates them to places beyond the norm, no longer feel the need to 
-resort to physical violence, even going so far as to be staunch proponents of firearms prohibition. 
-Their powers are less impressive from a layperson's eyes, although relatively more difficult for mechanized 
-systems, trained and all, to detect malice through sensory data, thus allowing them to continue thriving 
-for themselves while disgracing and destroying within their capabilities. 
+the base unit for their composition, and the more obvious drive to accumulate wealth is grounds for 
+masking the subtleties of political machinations from these modern American savages. Some modern American 
+savages, having undergone education that aligns with their social strengths and elevates them to places 
+beyond the norm, no longer feel the need to resort to physical violence, even going so far as to be 
+staunch proponents of firearms prohibition. Their powers are less impressive from a layperson's eyes, 
+although relatively more difficult for mechanized systems, trained and all, to detect malice through 
+sensory data, thus allowing them to continue thriving for themselves while disgracing and destroying 
+within their capabilities. 
 
 Other modern American savages believe in regressing away from the forms that they felt were forced onto them, 
 such as standardized education. They take quotes such as "we don't need no education" to heart. They are 
