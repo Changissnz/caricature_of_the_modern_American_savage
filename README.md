@@ -10,8 +10,10 @@ for a good start. Here already, there are two schools of thought: talk little an
 actions count, or talk much and talk about virtually anything for the truth or whatever 
 and beyond. 
 
-The modern American savage is no different from one from another land. This fact is a 
-little insulting to the idea of American exceptionalism, but it makes for a great starting 
-point. 
-
-
+The modern American savage is no different than one from another land. This fact is a 
+little insulting to the idea of American exceptionalism, if American exceptionalism is 
+supposed to be the overhead characteristic of all characteristics to the land. But it 
+makes for a great starting point. Modern American savages long for dysfunctional 
+circumstances to afflict those that are more talented and moral than them. With 
+dysfunctional circumstances comes the opportunity for them to really take charge, to 
+seize the reins from the powers that were. 
