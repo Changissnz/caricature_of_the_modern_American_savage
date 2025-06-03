@@ -100,6 +100,11 @@ surroundings". But here is where a misconception may occur. Modern American sava
 They are also not all "wolves". Grievous mistakes in predicting their behaviors may occur when they are 
 misconceived by labels such as these. Some modern American savages strive for wealth accumulation, one 
 of the evident paths of social mobility. So the means by which this sub-category of modern American 
-savage is different. More refined in decorum and soft-spoken, all part of the outfit to shake hands 
-and partner up with financial prestige. 
-
+savage operate is different. More refined in decorum and soft-spoken, all part of the outfit to shake 
+hands and partner up with financial prestige. Political games are usually comprised of power plays as 
+the base unit for their composition. Some modern American savages, having undergone education that aligns 
+with their social strengths and elevates them to places beyond the norm, no longer feel the need to 
+resort to physical violence, even going so far as to be staunch proponents of firearms prohibition. 
+Their powers are less impressive from a layperson's eyes, although relatively more difficult for mechanized 
+systems trained to detect malice through sensory data, thus allowing them to thrive for themselves while 
+disgracing and destroying within their capabilities. 
