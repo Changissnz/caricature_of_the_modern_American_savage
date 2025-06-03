@@ -85,11 +85,12 @@ inheritance, or doing so well regardless of their inheritance. That is the natur
 beast that bites off one arm and leaves the other one intact, as a definitive comparison of what is 
 and what could have been, roughly speaking. An "industrial revolution" has been ushered in, so there 
 must be a "great scramble". The modern American savage sees through their own suffering during these times 
-because they see opportunity. The many trains of complaints goes like this: there are so many money problems, 
+because they see opportunity. The many trains of complaints go like this: there are so many money problems, 
 people have lost sight of their own worth outside of the skills they have acquired, people need direction 
 and prerogative and some would definitely sacrifice their freedoms such as by selling their bodies to 
 reaffirm their positions in these most troubling times. So people need leaders. The modern American 
 savage thinks, "maybe I could lead them". People become prey to their own conditions and social ills 
 that have re-emerged. The modern American savage thinks, "maybe they could be my next prey, delicioso". 
-
+Modern American savages are not confined to being monolingual in English. Other languages that are 
+popularly used are Spanish, Russian, Arabic and Mandarin. 
 
