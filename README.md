@@ -47,5 +47,9 @@ What makes the modern American savage distinctive enough to be placed into a dis
 as opposed to Mongoloid or Negroid or Slavic savage, is that the norms of the US are relatively 
 more commercial than many other nations. The commercial legacy of the US indeed made for a lot 
 of misonceptions about it. Some nations did or do believe that the US was nothing more than a 
-merchant's state, but these nations will not be specifically named here. 
+merchant's state, but these nations will not be specifically named here. With commerce, the 
+erection,propagation, and maintenance of supply chains comprise cause for the inevitable one 
+equilibrium of few bosses and many workers, these workers in some cases even regarded as "slaves", 
+an archaic viewpoint but one that is as relevant as the degree of servitude and bondage of worker 
+by boss. 
 
