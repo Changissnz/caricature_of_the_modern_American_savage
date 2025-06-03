@@ -106,5 +106,5 @@ the base unit for their composition. Some modern American savages, having underg
 with their social strengths and elevates them to places beyond the norm, no longer feel the need to 
 resort to physical violence, even going so far as to be staunch proponents of firearms prohibition. 
 Their powers are less impressive from a layperson's eyes, although relatively more difficult for mechanized 
-systems trained to detect malice through sensory data, thus allowing them to thrive for themselves while 
-disgracing and destroying within their capabilities. 
+systems, trained and all, to detect malice through sensory data, thus allowing them to continue thriving 
+for themselves while disgracing and destroying within their capabilities. 
